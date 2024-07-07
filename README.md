@@ -1,1 +1,1 @@
-hi
+Wild Rydes AWS site
